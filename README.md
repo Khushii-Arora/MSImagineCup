@@ -2,7 +2,7 @@
 
 
 ### 📚 Selected Theme
-Open Innovation
+LifeStyle
 
 
 ## How to Use
